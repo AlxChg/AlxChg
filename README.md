@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @AlxChg
 - 👀 I’m interested in Actualization. 
-- 🌱 I’m currently learning. 
-- 💞️ I’m looking to collaborate. 
+- 🌱 I’m currently learning everything. 
+- 💞️ I’m looking to collaborate. Maybe?
 - 📫 How to reach me: Email - github@alexchung.com 
 
 <!---
