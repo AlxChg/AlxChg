@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @AlxChg
+- 👋 Hi, I am @AlxChg
 - 👀 I’m interested in Actualization. 
 - 🌱 I’m currently learning everything. 
 - 💞️ I’m looking to collaborate. Maybe?
